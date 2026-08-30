@@ -8,4 +8,4 @@ Nee pakkana prathi kshanam aagipothundi.
 Prema ante goppa maatale kaadu
 Nuvvu unnade naa sampoornatha.
 
-her birthday on 
+her birthday on 27th
